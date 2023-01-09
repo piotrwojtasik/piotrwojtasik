@@ -1,4 +1,5 @@
-![ZOHV](https://user-images.githubusercontent.com/76587990/211384059-2fe58847-b443-4209-b34d-c82166f8f4f7.gif)
+![XOsa](https://user-images.githubusercontent.com/76587990/211384544-eee2591e-ac60-4b86-af73-6b946b36fef3.gif)
+
 
 ### Hi there 👋
 
